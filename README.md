@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Pradnya1903
+- 👀 Actually i'm intresting in mathematics. i love maths.
+- and i like to explore new things 
+- 🌱 I’m currently learning in mksss's cummmins college of engineering , pune .
+- 📫 How to reach me ...
+- my email 1 : pradnya.deshmukh@cumminscolege.in
+- email 2 :  pradnyadeshmukh554@gmail.com
